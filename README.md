@@ -4,7 +4,7 @@
 hello ! we'd thought we should make this so people can get a better idea about our system before speaking with us . ────────────────────────
 𓏴 ! BODILY 13 + ! 𓏴
 multiple hosted 𖤐 fictive heavy ♡ (?)
-CAC : 40 + | (current alter count)
+ + | (current alter count)
 doubles = ask to int !
 c+h!
 ➜ HOSTS : ৎ
